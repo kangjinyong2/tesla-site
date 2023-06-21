@@ -13,5 +13,5 @@
 
 ## (Wed)
 ![1](https://github.com/kangjinyong2/tesla-site/assets/66777943/08742f35-3543-437a-91a7-05280f576cf3)
-## (
+## (Mobile)
 ![2](https://github.com/kangjinyong2/tesla-site/assets/66777943/66feb524-9e40-4613-9022-719c383e9ecb)
